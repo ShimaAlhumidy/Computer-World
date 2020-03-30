@@ -2,12 +2,9 @@
 عالم الحاسوب
  
 فريق العمل:-
-1- خلود العزي kikonono@gmail.com
-2- ربى دماج  rbabhdammag@gmail.com
+1- شيماء الحميدي  sunnyhealer9@gmail.com
+2- ختام اسحم khitamhussien622@gmail.com
 3- عينات باعلوي ainat9877@gmail.com
-4- هدى الطاهري hudafaroqaltaheri@gmail.com
-5- ختام اسحم khitamhussien622@gmail.com
-6- شيماء الحميدي  sunnyhealer9@gmail.com
 
 اسم الفريق:-  
 Geneus programmers
