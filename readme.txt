@@ -7,7 +7,7 @@
 3- عينات باعلوي ainat9877@gmail.com
 
 اسم الفريق:-  
-Geneus programmers
+Genius programmers
 
 البريد الالكتروني :
 geniusprogrammer6@gmail.com
